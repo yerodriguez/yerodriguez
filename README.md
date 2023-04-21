@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @yerodriguez
+- 👋 Hi, I’m Yamani Rodriguez (@yerodriguez)
 
 Love learning and collaborating on new technology.
